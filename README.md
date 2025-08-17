@@ -1,16 +1,25 @@
-## Hi there 👋
+Hello! Welcome to Economist Ajay Sahu’s Page 🌟
 
-<!--
-**Economistajaysahu/economistajaysahu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I’m Ajay Sahu — Economist & Lecturer in Uttarakhand. 📚 Teaching Economics for Classes 11, 12, B.A. & M.A. 📺 Sharing knowledge through YouTube.
 
-Here are some ideas to get you started:
+🎓 Education: B.A., M.A., UPSC (Mains)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+👨‍🏫 Profession: Lecturer in Economics at GIC Kushumkhera, Haldwani, Uttarakhand. I teach Economics for: • Class 11 • Class 12 • B.A. • M.A. Here are some of my YouTube lessons:
+
+🎥 अवसर लागत
+
+🎥 मूल्य के निर्धारण में समय का महत्व
+
+🎥 पूर्ति में परिवर्तन का संतुलित कीमत पर प्रभाव
+
+🎥 हरित क्रांति (Green Revolution)
+
+📺 YouTube Channel: @Economist_Ajay_Sahu9999
+
+📩 Contact Section 👤 Website:
+
+📧 Email: ajayeconomist20014@gmail.com
+
+🌐 Socials: 🔗 Instagram – economisit.ajay 🔗 Facebook – economisit.ajay 🔗 YouTube – @Economist_Ajay_Sahu9999
+
+© 2025 Ajay Sahu. All rights reserved.
